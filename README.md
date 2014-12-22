@@ -33,9 +33,263 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The last part of the Mirour for magistrates wherein may be seene by examples passed in this realme, 
+
+1. Loue and Liue.
+TO ALL THE NOBIlitie,
+and all other in office, God
+graunte wiſedome and all thinges nedefull
+for the preſeruation of their
+Eſtates. Amen.
+
+1. A TABLE OF THE
+Contentes of this Booke.
+
+1. ❧A BRIEFE MEMOriall
+of ſundry vnfortunate
+Engliſhmen.
+VVILLIAM BALDVVIN
+to the Reader
+
 #####Body#####
-The last part of the Mirour for magistrates wherein may be seene by examples passed in this realme, 
+
+1. ❧THE FALL OF SIR
+Robert Treſilian chief Iuſtice of England,
+and other his fellowes, for miſconſtruinge the Lawes
+and expoundinge them to ſerue the Prynces
+affections. Anno.
+1388.
+WHen finiſhed was this Tragedy, which ſemed
+not vnfyt for the perſons touched in y•
+ſame. Another wh
+1. HOVV THE TWO ROGERS,
+ſurnamed Mortimers, for their
+ſundrye Vyces, ended theire lyues vnfortunatelye,
+the one Anno. 1329. the
+other. Anno. 1387.
+AFter this Tragedye ended, Mayſ•er Ferrers
+ſayde, ſeeinge it is beſte to place eche
+perſon in his or
+1. HOVVE SIR THOMAS
+of VVoodſtocke, Duke of Gloceſtre,
+Vncle to King Rychard the ſecond,
+was vnlawfully murdered.
+Anno. 1397.
+WHen maiſter Ferrers had ended this
+fruictfull Tragedye, becauſe no mā
+was readye with an other, ha
+1. HOVV THE LORDE
+Mowbray promoted by Kynge
+Rychard the ſeconde, to the State of a Duke,
+was by him Baniſhed the Realme, in the
+yeare of Chriſte. 1398. and after died
+myſerably in exile.
+THis tragical example was of al the company
+wel liked, howbeit a doubt was foūd therin,
+& that by m
+1. HOWE KINGE RICHARDE
+the ſecond was for his euil gouernaunce
+depoſed from his ſeate, in the yeare
+1399. & miſerably murthered in priſon
+the yeare folowing.
+WHen Maiſter Ferrers had ended this ſo
+woful a Tragedye, and to all Princes a
+right worthy inſtructi
+1. HOVV OVVEN GLENdour
+ſeduced by falſe Prophecies,
+tooke vpon him to be Prince of VVales, & was
+by Henry Prince of England chaſed to the
+Mountaynes, where he moſt miſerably
+ſtarued for hunger. Anno.
+1401.
+WHan mayſter Phaer had ended the Tragedy
+of thys hunger ſtaruen Prynce of
+Wales, it was well liked o
+1. ❧HOVV HENRYE
+Percy Earle of Northumberlande,
+was for his couetous, and trayterous attempt put
+to death at Yorke.
+Anno. 1407.
+BY that this was ended, I had found oute
+the ſtorye of Richard Earle of Cambridge:
+•becauſe it conte
+1. HOVVE RICHARD
+Plātagenet Earle of Cambridge
+entending the Kinges deſtruction, was put to
+death at Southampton. Anno.
+Domini. 1415.
+WHan ſtout Richarde had ſtoutly ſayde his
+mynde, belike ſayd one, this Rychard was
+but a little man,
+1. HOVVE THOMAS MONtague
+Earle of Saliſburie, in the
+middeſt of his glorie, was chaunceablye ſlayne at
+Orliaunce with a peece of Ordinaunce the
+third of Nouember. Anno
+1428.
+THis ſtraunge aduenture of the good earle
+draue vs al into a dumpe, inwardly lamēting
+his woful deſ
+1. HOW KING IAMES THE
+firſt for breaking his othes and bonds
+was by Gods ſufferaunce miſerably murdered of his
+owne Subiectes. Anno. 1437.
+WHen this was ſayde (quod one
+of the companye) let paſſe theſe
+Scottiſh matters, and returne
+we to o
+1. HOVV DAME ELIANOR
+Cobham Ducheſſe of Gloceſter▪
+for practiſing of witchcraft and Sorcery, ſuffred
+open penance, and after was baniſhed the
+realme into the yle of Man.
+SVerly (ſayd one of the companye)
+thys Lady hath don much to moue
+the hearers to pitye her, & hath
+v
+1. HOVV HVMFREY PLANtagenet
+Duke of Gloceſter Protector
+of England, during the minoritie of his Nephue kinge
+Henrye the ſixt, (commonlye called the good
+Duke) by practiſe of enemies was brought
+to confuſion.
+THe good Duke hauing ended his wof•ll
+tragedye, after much talke had concerning
+diſcention among the
+1. HOWE VVILLIAM DELApoole
+Duke of Suffolke was worthelye
+baniſhed for abuſing his kinge, and procuringe the
+death of Duke Humfrey of Gloceſter, protector
+of England. Anno. 1450.
+VVHan this was ſayd: euery man reioſed to
+heare of a wicked perſon ſo righteouſly puniſhed:
+for thou
+1. HOW IACKE CADE NAminge
+himſelfe Mortimer, trayterouſly
+rebellinge agaynſt his Kinge in Iune.
+Anno. 1450. was for his treaſons, and cruell
+doinges worthely puniſhed.
+BY ſaint Mary (ſaid one) if Iacke were
+as wel learned, as you haue made hys
+oration, whatſoeuer hee 
+1. THE TRAGEDY OF EDmond
+Duke of Somerſet, ſlayne
+in the firſt battayle at Saynct Albanes, the. 23.
+day of May, in the. 32. yeare of Henry
+the ſixt. Anno. 1454.
+*⁎*
+AFter this Tragedy ended, one ſayd ſeeinge
+this Duke hath ſo vehemently exclaymed
+agaynſt the Duke o
+1. HOW RICHARD PLANtagenet
+Duke of Yorke was ſlayne
+through his ouer raſh boldneſſe, and his Sonne Earle
+of Rutland an Infant cruelly murdered
+Anno. 1460.
+WIth that maiſter Ferrers ſhoke me by the
+ſleeue ſaying: why how now man do you
+forget your ſelfe? b
+1. Howe the Lorde Clifforde for his
+extreame crueltie, came to a cruel, ſtraunge, & ſodaine
+death. Anno. 1461.
+WHan this tragedy was ended, O Lord ſaid
+another, how horrible a thing is diuiſion in
+a Realme, to h
+1. THE INFAMOVS ENDE
+of the Lord Tiptoft, Earle of VVorceſtre,
+for executing his princes crueltie.
+Anno. 1470.
+THis Typtoftes Tragedye was not ſo ſone
+•iniſhed, but one of the company had prouided
+for another, o
+1. HOW SIR RICHARD
+Neuill Earle of Warwicke, and his
+Brother Iohn, Lord Marquiſe Montacute, through
+their to mutch boldneſſe were ſlayne at Barnet, the
+14. of Aprill. Anno. 1471.
+*⁎*
+AS ſoone as y• Earle had ended this admonition,
+ſure (ſaid one) I thinke the Earle of
+Warwick althou
+1. HOW KINGE HENRY
+the ſixt a vertuous Prince, was after
+many other miſeries, cruelly murthered in the
+Tower of London the. 22. of May.
+Anno. 1471.
+*⁎*
+THis tragedy ended, another ſayd: either you
+or Kinge Henry are a good Philoſopher ſo
+narrowly to ar
+1. HOW GEORGE PLANtagenet
+thirde Sonne of the Duke of
+Yorke, was by his Brother. K. Edward wrongfully impryſoned,
+and by hys Brother Richarde miſerably murdered
+the. 11. of Ianuary. Anno.
+1448.
+BY that this tragedye was ended, nighte
+was ſo nere come that we could not conueniētly
+tary togethe
+1. HOVV KINGE EDVVARDE
+the fourth throughe his ſurfeting and
+vntēperate life ſodainly dyed in the midſt of his proſperity,
+the ninth of April
+Anuo. 1485
+WHan this was red euery man for the time
+tooke his leaue of other, and departed (for
+then it waxed d
+1. HOVV SIR ANTHONY WOD
+vile Lord Riuers and Scales, gouernour
+of Prince Edvvard was with his nephu Lord
+Richard Gray, and other cauſeleſſe
+impriſoned and cruelly
+murdered. An. 1483
+WHā I had read this, they liked it very wel,
+one wiſhed yt the combat which hee fought
+with the Baſ
+1. HOW THE LORD HAſtings
+was Betrayed by truſtinge to
+mutch to his euill Counſaylour Cateſby, and Vilanouſly
+murdered in the Tower of London by Richard Duke
+of Gloceſter, the. 13. of Iune
+Anno. 1483.
+WHen I had read this, one ſayd the admonition
+geuen in the hiſtory was profitable
+for the auoyding o
+1. THE INDVCTION,
+
+1. The Complaynt of Henry
+Duke of Buckingham.
+HOw like you this my maiſters (quoth I)
+very wel ſayd one: the tragedy excelleth: ye
+inuention alſo 
+1. How Collingbourn was cruelly executed,
+for making a fooliſh Ryme.
+GOds bleſſinge on his heart that made this
+ſayd one) ſpecially for reuiuinge our auncient
+Liberties.
+1. HOW RICHARD PLANtagenet
+Duke of Gloceſter, murdered
+his Brothers Children vſurpinge the Crowne, and in the.iij.
+yeare of his Raygne, was moſt worthely depriued of life, &
+Kingdome in Boſworth Playne, by Henry Earle of Richmond,
+after called Kinge Henry the ſeuenth,
+the.22. of Auguſt. 1485.
+WHen I had read this, wee had muche talke
+aboute it. For it was thought not vehement
+enough for ſo v
+1. THE WILFVL FAL OF
+blacke Smith, and the fooliſhe
+ende of the Lord Awdeley in Iune.
+Anno. 1496.
+*⁎*
+IT is pity (quoth one) that the metre is
+no better ſeeing ye matter is ſo good: you
+may do very wel 
+1. HOVVE SHORES WIFE
+Kinge Edwarde the fowerthes
+Concubine, was by king Richard deſpoyled of
+al her goodes, and forced to doe open
+pennaunce.
+
 **Types of content**
 
   * There are 8343 **verse** lines!
